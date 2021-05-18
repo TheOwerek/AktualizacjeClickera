@@ -1,1 +1,1 @@
-# AktualizacjeClickera
+# Nie ma żadnych aktualizacij:)
